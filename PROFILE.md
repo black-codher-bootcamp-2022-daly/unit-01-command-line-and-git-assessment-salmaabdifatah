@@ -19,9 +19,7 @@ My first love has always been literature and I hope to one day complete a creati
 4. Pachinko by Min Jin Lee
 5. What It Means When a Man Falls from the Sky By Leslie Nneka Arimah
 
-My favourite thing to watch when I need to relax is the Hamilton musical on Disney+: 
-
-[title] (https://www.disneyplus.com/en-gb/movies/hamilton/3uPmBHWlO6HJ)
+[My favourite thing to watch when I need to relax is the Hamilton musical on Disney+](https://www.disneyplus.com/en-gb/movies/hamilton/3uPmBHWlO6HJ)
 
 My top five favourite shows are:
 
